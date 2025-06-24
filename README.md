@@ -71,8 +71,7 @@ _Jan 2009 – Dec 2012, Chattanooga, TN_
 ## 🌐 Let’s Connect!
 
 - [Email](mailto:kalanbrock@gmail.com)
-- [LinkedIn](#) <!-- Add your LinkedIn URL here -->
-- [Twitter/X](#) <!-- Add your Twitter/X URL if you want -->
+
 
 ---
 
